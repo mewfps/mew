@@ -4,7 +4,7 @@
 
 ## I just develop shit tbh
 
-  **[DISCORD](https://discord.com/users/1215522544564703323)**
+  Add me **[DISCORD](https://discord.com/users/1215522544564703323)**
 
  ![Profile Views](https://komarev.com/ghpvc/?username=YourGitHubUsername&color=blueviolet)
 
