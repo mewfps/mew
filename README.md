@@ -4,7 +4,7 @@
 
 ## I just develop shit tbh
 
-🚀 Connect with me on Discord: [YourDiscordUsername](https://discord.com/users/1215522544564703323)
+  **[DISCORD](https://discord.com/users/1215522544564703323)**
 
  ![Profile Views](https://komarev.com/ghpvc/?username=YourGitHubUsername&color=blueviolet)
 
