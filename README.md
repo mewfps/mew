@@ -12,6 +12,6 @@
 
 **Add me on [discord](https://discord.com/users/1215522544564703323)**
 
- ![Profile Views](https://komarev.com/ghpvc/?username=YourGitHubUsername&color=blueviolet)
+ ![Profile Views](https://komarev.com/ghpvc/?username=mewfps&color=blueviolet)
 
 </div>
