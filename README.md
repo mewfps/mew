@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://images.miona.cc/image/daa2d490-11eb-4329-9e77-123e9e2acea1.gif" alt="In Mew We Trust" style="max-width: 100px;">
+<img src="https://images-ext-1.discordapp.net/external/pVVUBoWqW0N6WdK_GuFXIAgf3vjB6LzglNMDIxvsigU/https/images.miona.cc/image/6d73e4c9-17a0-4f60-888b-42a93e444906.jpg" alt="In Mew We Trust" style="max-width: 100px;">
 
 # In Mew We Trust
 
